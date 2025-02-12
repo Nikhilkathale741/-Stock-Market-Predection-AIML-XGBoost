@@ -6,7 +6,7 @@
 
 
 
-                                                                                                                                                                                                                CREATED  BY - 
-                                                                                                                                                                                                                Mayank Kumar 
-                                                                                                                                                                                                                Rajas Ratnaparkhi 
-                                                                                                                                                                                                                Nikhil Kathale
+MADE BY:
+MAYANK KUMAR 🤓
+RAJAS RATNAPARKHI 😎
+NIKHIL KATHALE  🤓                                                                                                                                                                                                     
