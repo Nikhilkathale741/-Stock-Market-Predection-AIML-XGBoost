@@ -7,7 +7,4 @@
 
 <img width="1188" alt="Image" src="https://github.com/user-attachments/assets/38b8ebfd-4234-40e3-aa43-2f6b6509c9e8" />
 
-MADE BY:
-MAYANK KUMAR 🤓
-RAJAS RATNAPARKHI 😎
-NIKHIL KATHALE  🤓                                                                                                                                                                                                     
+                                                                                                                                                                                                   
